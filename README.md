@@ -1,1 +1,4 @@
-# Blackjack_project
+Menni (pinchas)
+Diskind
+Arava
+323957555
